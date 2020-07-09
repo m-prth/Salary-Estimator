@@ -85,6 +85,8 @@ Ken Jee: https://github.com/PlayingNumbers
 
 Aayush Jain: https://github.com/Darkshadow9799
 
+Parth Mistry © 2020
+
 
 
 
